@@ -1,3 +1,4 @@
-![GvV9O-sagAETAQp (2)](https://github.com/user-attachments/assets/c261d130-39ae-4cba-8c24-8a598b96a18f)
+![GxOIqySXkAABK_7](https://github.com/user-attachments/assets/02e904b6-e21e-4343-9c93-040b56f57ac8)
+
                                                             
-                                                            i loveee chance! ଘ(੭◌ˊᵕˋ)੭ ੈ♡
+                                                                      ദ്ദി◝ ⩊ ◜.ᐟ)
