@@ -1,7 +1,9 @@
+
+
 i love 007n7, ok >^ω^<
 
 
-<img width="1652" height="2048" alt="tumblr_0e79b880267d9878596f83535db92bc5_e51271b1_2048" src="https://github.com/user-attachments/assets/93eb9b68-3cfc-4ce5-b399-6db64476f585" />
+<img width="1652" height="2048" alt="tumblr_0bdf14cd0cffc119cd59cfb957f9ee1b_0df5ea1e_2048" src="https://github.com/user-attachments/assets/e12296bd-15d4-434f-8622-6d37c50c4cc8" />
 
 
 
