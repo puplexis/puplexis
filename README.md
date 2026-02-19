@@ -3,7 +3,8 @@
 i love 007n7, ok >^ω^<
 
 
-<img width="1652" height="2048" alt="tumblr_0bdf14cd0cffc119cd59cfb957f9ee1b_0df5ea1e_2048" src="https://github.com/user-attachments/assets/e12296bd-15d4-434f-8622-6d37c50c4cc8" />
+<img width="1652" height="2048" alt="tumblr_03cec4d7224b147d33575739a4cb6c22_d8d79980_2048" src="https://github.com/user-attachments/assets/6a30b8b8-f9bc-43c2-9d0f-45d5a74ab48c" />
+
 
 
 
