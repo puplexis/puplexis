@@ -4,7 +4,7 @@ i love 007n7, ok >^ω^<
 
 
 
-<p align="left">
+<p align="right">
   <img src="https://files.catbox.moe/1joidj.png" width="500" />
 
 
