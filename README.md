@@ -4,11 +4,9 @@ i love 007n7, ok >^ω^<
 
 
 
-<p align="right">
-  <img src="https://files.catbox.moe/1joidj.png" width="500" />
+<img align="right" src="https://files.catbox.moe/1joidj.png" alt="image" width="500" />
 
-
-
+ill punch lain
 
 
 
@@ -25,4 +23,4 @@ i love 007n7, ok >^ω^<
 
                                                             
 
-                                                                ദ്ദി◝ ⩊ ◜.ᐟ)
+                                                               
