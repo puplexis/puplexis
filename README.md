@@ -1,6 +1,6 @@
 
+ i love 007n7, ok >^ω^<
 
-i love 007n7, ok >^ω^<
 
 
 <img align="right" src="https://files.catbox.moe/16t60l.png" alt="image" width="500" />
@@ -14,7 +14,8 @@ i love 007n7, ok >^ω^<
 
 
 
-still working on it cuz im lazy . . .
+still working on it cuz im lazy . . . ![ln6spd](https://github.com/user-attachments/assets/d313964c-516b-4539-bcc7-1f1ba340ac1a)
+
 
 
 
