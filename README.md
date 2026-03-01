@@ -1,5 +1,8 @@
 
- i love 007n7, ok >^ω^< ![ln6spd](https://github.com/user-attachments/assets/d313964c-516b-4539-bcc7-1f1ba340ac1a)
+ i love 007n7, ok >^ω^< ![gmy5o9](https://github.com/user-attachments/assets/6247a078-c480-4436-aac5-6abe46d597d4) ![lrj8b1](https://github.com/user-attachments/assets/920115f3-5be4-41bd-9bcc-36b1fec8017a)
+
+
+
 
 
 
