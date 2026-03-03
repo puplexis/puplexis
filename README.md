@@ -6,14 +6,15 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/da1uok.png" alt="image" width="550" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/da1uok.png" alt="image" width="500" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/wtup3u.png" alt="image" width="550" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/wtup3u.png" alt="image" width="550" />
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/coe00l.png" alt="image" width="550" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/coe00l.png" alt="image" width="500" />
+
 
 
 
