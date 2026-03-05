@@ -6,7 +6,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage!](https://puplexiss.straw.page)ㅤㅤ♡ㅤㅤ [rentry!](https://rentry.co/iwant1x1x1x1okbye)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/tpapg9.png" width="150" />ㅤㅤㅤ[atabook!](https://tsukkiii.atabook.org/)ㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤㅤ<img align="middle" src="https://files.catbox.moe/7jl5gr.png" width="150" />
+ㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/tpapg9.png" width="150" />ㅤㅤ[atabook!](https://tsukkiii.atabook.org/)ㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤㅤ<img align="middle" src="https://files.catbox.moe/7jl5gr.png" width="150" />
 
 ‎
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/5mthdg.png" width="550" />
