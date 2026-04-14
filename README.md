@@ -1,6 +1,6 @@
 its a wip so i might change later.
 
-ㅤㅤㅤ<div align="center"><img src="https://file.garden/ad7E6gx5M13uwG93/wemwemwem.png" width="300" height="600" /></div>
+ㅤㅤㅤㅤ<div align="center"><img src="https://file.garden/ad7E6gx5M13uwG93/wemwemwem.png" width="300" height="600" /></div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook!](https://tsukkiii.atabook.org/)ㅤㅤ ♡ㅤㅤ [strawpage!](https://hichance777.straw.page)ㅤㅤ
 
