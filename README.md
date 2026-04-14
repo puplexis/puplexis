@@ -1,4 +1,4 @@
-$$\color{#B06B98}{\text{ Wemmbu ! ୨୧ }}$$
+$$\color{#AB6997}{\text{ . ✦ 🜲 Wemmbu ! ‎ꫂ᭪݁ }}$$
 
 ㅤㅤㅤㅤㅤㅤ<div align="center"><img src="https://file.garden/ad7E6gx5M13uwG93/wemwemwem.png" width="300" height="600" /></div>
 
