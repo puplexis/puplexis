@@ -1,4 +1,4 @@
-its a wip so i might change later.
+$$\color{#B06B98}{\text{ its a wip so i might change later. }}$$
 
 ㅤㅤㅤㅤㅤㅤ<div align="center"><img src="https://file.garden/ad7E6gx5M13uwG93/wemwemwem.png" width="300" height="600" /></div>
 
