@@ -1,14 +1,10 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/53srqg.png" width="550" />
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/b6zg5s.png" alt="image" width="550" />
+ㅤㅤㅤ<img width="286" height="404" alt="wemwemwem" src="https://github.com/user-attachments/assets/f7929dfd-0cb4-453d-91cd-ca8a176f39c0" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook!](https://tsukkiii.atabook.org/)ㅤㅤ ♡ㅤㅤ [strawpage!](https://hichance777.straw.page)ㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤ ㅤㅤㅤ ㅤ<img align="middle" src="https://files.catbox.moe/tpapg9.png" width="150" />ㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤㅤ<img align="middle" src="https://files.catbox.moe/7jl5gr.png" width="150" />
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤㅤ
 ‎
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/5mthdg.png" width="550" />
+ㅤㅤㅤㅤㅤ
 
 
 
