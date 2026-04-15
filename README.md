@@ -8,21 +8,21 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
 
-$$\color{#ee321f}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧ }}$$
+$$\color{#7AA1A6}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧ }}$$
  
 
 
- $$\color{#7cc991}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
+ $$\color{#D5C89B}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
  
- $$\color{#7cc991}{\text{•  i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
+ $$\color{#BC7EA5}{\text{•  i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
 
- $$\color{#7cc991}{\text{•  (i can be shy to int sometimes!) }}$$
+ $$\color{#BC7EA5}{\text{•  (i can be shy to int sometimes!) }}$$
 
- $$\color{#7cc991}{\text{•  multifandom, multishipper }}$$
+ $$\color{#BC7EA5}{\text{•  multifandom, multishipper }}$$
  
- $$\color{#7cc991}{\text{•  don′t copy my skins or any,! }}$$
+ $$\color{#BC7EA5}{\text{•  don′t copy my skins or any,! }}$$
   
- $$\color{#7cc991}{\text{•  i can be afk sometimes suddenly }}$$
+ $$\color{#BC7EA5}{\text{•  i can be afk sometimes suddenly }}$$
  
 
                                                                
