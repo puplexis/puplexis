@@ -1,4 +1,4 @@
-$$\color{#AB6997}{\text{ 「🜲 Wemmbu ! ‎ꫂ᭪݁ 」}}$$
+$$\color{#AB6997}{\text{ 「Wemmbu ! ‎ꫂ᭪݁ 」}}$$
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/wemwemwem.png" alt="image" width="300" />
 
