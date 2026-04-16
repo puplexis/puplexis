@@ -12,7 +12,7 @@ $$\color{#7AA1A6}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ�
  
 
 
- $$\color{#D5C89B}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
+ $$\color{#AD9C70}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
  
  $$\color{#BC7EA5}{\text{•  i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
 
