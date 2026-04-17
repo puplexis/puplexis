@@ -27,8 +27,7 @@ $$\color{#7AA1A6}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ�
   
  $$\color{#BC7EA5}{\text{•  i can be afk sometimes suddenly }}$$
  
-
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_445ab79663cfd9c3f997912fe20069bb_a5fabb7c_2048.png" alt="image" width="900" />
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_445ab79663cfd9c3f997912fe20069bb_a5fabb7c_2048.png" alt="image" width="900" />
  
 
                                                                
