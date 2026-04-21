@@ -19,8 +19,6 @@ $$\color{#7AA1A6}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ�
  
  $$\color{#BC7EA5}{\text{•  i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
 
- $$\color{#BC7EA5}{\text{•  (i can be shy to int sometimes!) }}$$
-
  $$\color{#BC7EA5}{\text{•  multifandom, multishipper }}$$
  
  $$\color{#BC7EA5}{\text{•  don′t copy my skins or any,! }}$$
