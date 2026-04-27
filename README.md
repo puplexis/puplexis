@@ -42,8 +42,7 @@ $$\color{#7AA1A6}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ�
 </a>
 
 
- <p align="left"> $$\color{#BC7EA5}{\text{ •• i am a very shy person and don't usually interact first }}$$
-  
+
  <p align="left"> $$\color{#BC7EA5}{\text{ •• if i dont respond to messages very quickly. im afk or offtab, }}$$ㅤㅤ 
   
  <p align="left"> $$\color{#BC7EA5}{\text{ •• if you make me uncomfortable, i will block you or distance myself from you, }}$$
