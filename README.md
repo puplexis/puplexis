@@ -7,7 +7,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook!](https://tsukkiii.atabook.org/)ㅤ꒰ঌᰔᩚ໒꒱ㅤ [strawpage!](https://manepearhihi.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新𝖻𝗈𝗈𝗄!](https://tsukkiii.atabook.org/)ㅤ꒰ঌᰔᩚ໒꒱ㅤ [strawpage!](https://manepearhihi.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
 
