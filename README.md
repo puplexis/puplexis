@@ -1,9 +1,9 @@
 ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
 
  <p align=center>
- <a href="https://wifies1.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/strawpage.png" width="300" height="auto"/></a>
- <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/atabook.png" width="300" height="auto"/></a>
- <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://file.garden/ad7E6gx5M13uwG93/roblox11.png" width="300" height="auto"/></a>
+ <a href="https://wifies1.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/strawpage.png" width="250" height="auto"/></a>
+ <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/atabook.png" width="250" height="auto"/></a>
+ <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://file.garden/ad7E6gx5M13uwG93/roblox11.png" width="250" height="auto"/></a>
 </p>
 
 
