@@ -29,6 +29,8 @@
 <sub>${\text{\color{#e3d9b4}•ㅤi　\color{#ce9141} usually　\color{#a4ad5a} sit　\color{#639c9d} with　\color{#553d2a} my　\color{#a26899} friends　\color{#e3d9b4} but　\color{#aa7243} if　\color{#4d4a40} you　\color{#553d2a} see　\color{#e3d9b4} me 　\color{#ce9141} lounging 　\color{#a4ad5a} around 　\color{#639c9d} feel　\color{#7e5736} free 　\color{#a26899} to 　\color{#e3d9b4} sit 　\color{#4d4a40} with 　\color{#553d2a} me }}$ <br>
 
 <sub>${\text{\color{#e3d9b4}•ㅤif　\color{#ce9141} i　\color{#a4ad5a} dont　\color{#639c9d} respond　\color{#7c5536} to　\color{#a26899} messages　\color{#e3d9b4} very　\color{#aa7243} quickly.　\color{#4d4a40} im 　\color{#553d2a} afk 　\color{#e3d9b4} or 　\color{#ce9141} offtab, }}$ <br>
+
+<sub>${\text{\color{#e3d9b4}•ㅤmulti　\color{#ce9141} shipper　\color{#a4ad5a} ..　\color{#639c9d} multi　\color{#7c5536} fandom　\color{#a26899} !　\color{#e3d9b4} !　\color{#a26899} :3 }}$ <br>
   
  </a>
 </p>
