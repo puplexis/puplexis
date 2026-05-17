@@ -35,7 +35,7 @@
  </a>
 </p>
  <div align="center">
- <details> <summary> $${\color{#edaf67} ⪩♡⪨ \space silly \space odysseyduo, \space !! }$$ </summary>
+ <details> <summary> $${\color{#edaf67} ⪩♡⪨ \space silly \space odysseyduo, \space 2 \space !! }$$ </summary>
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  
 <p align="middle" dir="auto" >  
