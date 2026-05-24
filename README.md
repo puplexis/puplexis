@@ -22,15 +22,19 @@
 
 <img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z82_20260509001212.png" alt="image" width="550" />
 
- $$\color{#95342c}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
+
+<p align="center">
+$${\color{#95342c}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
+</p>
+
 
 <div align="center">
  
-<sub>${\text{\color{#e3d9b4}•ㅤi　\color{#ce9141} usually　\color{#a4ad5a} sit　\color{#639c9d} with　\color{#553d2a} my　\color{#a26899} friends　\color{#e3d9b4} but　\color{#aa7243} if　\color{#4d4a40} you　\color{#553d2a} see　\color{#e3d9b4} me 　\color{#ce9141} lounging 　\color{#a4ad5a} around 　\color{#639c9d} feel　\color{#7e5736} free 　\color{#a26899} to 　\color{#e3d9b4} sit 　\color{#4d4a40} with 　\color{#553d2a} me }}$ <br>
+ㅤ $${\color{#e3d9b4}•}$$ $${\color{#e3d9b4}i}$$ $${\color{#ce9141}usually}$$ $${\color{#a4ad5a}sit}$$  $${\color{#639c9d}with}$$ $${\color{#553d2a}my}$$ $${\color{#a26899}friends}$$ $${\color{#D6BA98}but}$$ $${\color{#aa7243}if}$$ $${\color{#4d4a40}you}$$ $${\color{#553d2a}see}$$ $${\color{#e3d9b4}me}$$ $${\color{#ce9141}lounging}$$ $${\color{#a4ad5a}around}$$ $${\color{#639c9d}feel}$$ $${\color{#a26899}free}$$ $${\color{#e3d9b4}to}$$ $${\color{#e3d9b4}sit}$$ $${\color{#4d4a40}with}$$ $${\color{#553d2a}me}$$ㅤ</br>
 
-<sub>${\text{\color{#e3d9b4}•ㅤif　\color{#ce9141} i　\color{#a4ad5a} dont　\color{#639c9d} respond　\color{#7c5536} to　\color{#a26899} messages　\color{#e3d9b4} very　\color{#aa7243} quickly.　\color{#4d4a40} im 　\color{#553d2a} afk 　\color{#e3d9b4} or 　\color{#ce9141} offtab, }}$ <br>
+ㅤ $${\color{#e3d9b4}•}$$ $${\color{#e3d9b4}if}$$ $${\color{#ce9141}i}$$ $${\color{#a4ad5a}dont}$$ $${\color{#639c9d}respond}$$ $${\color{#7c5536}to}$$ $${\color{#a26899}messages}$$ $${\color{#e3d9b4}very}$$ $${\color{#aa7243}quickly}$$ $${\color{#4d4a40}im}$$ $${\color{#553d2a}afk}$$ $${\color{#e3d9b4}or}$$ $${\color{#ce9141}offtab}$$ </br>
 
-<sub>${\text{\color{#e3d9b4}•ㅤmulti　\color{#ce9141} shipper　\color{#a4ad5a} ..　\color{#639c9d} multi　\color{#7c5536} fandom　\color{#a26899} !　\color{#e3d9b4} !　\color{#a26899} :3 }}$ <br>
+ㅤ $${\color{#e3d9b4}•}$$ ㅤ $${\color{#e3d9b4}multi}$$ ㅤ $${\color{#ce9141}fandom}$$ ㅤ $${\color{#a4ad5a},,}$$ ㅤ $${\color{#639c9d}multi}$$ ㅤ $${\color{#7c5536}shipper}$$ ㅤ $${\color{#a26899}!}$$ ㅤ $${\color{#e3d9b4}!}$$ ㅤ $${\color{#a26899}:3}$$
   
  </a>
 </p>
