@@ -28,4 +28,4 @@ $${\color{#D14733}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
 ㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/bj4jn9.png" alt="image" width="1000" />
 </p>
 
-`art from my friend . appledash3r_ !! `
+`art from my friend . appledash3r_ on twt!! `
