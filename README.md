@@ -17,6 +17,9 @@ $${\color{#75D668}around.}$$ $${\color{#50D2C7}feel}$$ $${\color{#4ECADB}free}$$
 $${\color{#BE2B2A}if}$$ $${\color{#D74735}i}$$ $${\color{#F28545}dont}$$ $${\color{#E4E666}respond}$$ $${\color{#67CA56}to}$$ $${\color{#50D2C7}messages}$$  $${\color{#4C97D5}very}$$  $${\color{#5870DA}quickly}$$  $${\color{#AE43D6}im}$$  $${\color{#9235b5}afk}$$  $${\color{#6b2c9c}or}$$  $${\color{#9c2c97}offtab}$$ㅤ</br>
 
  <p align=center>
+ <a href="https://spokeeeishere.straw.page/" target="_blank">strawpage</a>  <img width="25" alt="miniless" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z128_20260706234446.png" </p>
+</p>
  <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z125_20260704033631.png" width="400" height="auto"/></a>
+
 
 ㅤㅤㅤㅤㅤㅤㅤ`art from . yuniUoU on twt!! `
