@@ -23,7 +23,7 @@ $${\color{#61579d}︵‿୨♡୧‿︵}$$ ㅤ
 
 ㅤ $${\color{#d6d8dd}•}$$ $${\color{#905fb2}if}$$ $${\color{#784e9c}i}$$ $${\color{#6d3d97}dont}$$ $${\color{#62327a}respond}$$ $${\color{#3e3f7f}to}$$ $${\color{#41428b}messages}$$ $${\color{#464797}very}$$ $${\color{#494ba3}quickly}$$ $${\color{#4e4aa1}im}$$ $${\color{#524cb0}afk}$$ $${\color{#4c5fb0}or}$$ $${\color{#5265bb}offtab}$$ </br>
 
-ㅤ $${\color{#d6d8dd}•}$$ ㅤ $${\color{#5b4898}multi}$$ ㅤ $${\color{#902f8a}fandom}$$ ㅤ $${\color{#c3b17e},,}$$ ㅤ $${\color{#902f8a}multi}$$ ㅤ $${\color{#5b4898}shipper}$$ ㅤ $${\color{#902f8a}!}$$ ㅤ $${\color{#5b4898}!}$$ ㅤ $${\color{#ccced4}:3}$$
+ㅤ $${\color{#d6d8dd}•}$$ ㅤ $${\color{#5b4898}multi}$$ ㅤ $${\color{#902f8a}fandom}$$ ㅤ $${\color{#c3b17e},,}$$ ㅤ $${\color{#902f8a}multi}$$ ㅤ $${\color{#5b4898}shipper}$$ ㅤ $${\color{#902f8a}!}$$ ㅤ $${\color{#5b4898}!}$$ ㅤ $${\color{#902f8a}:3}$$
 
 <p align="center">
  <img src="https://file.garden/ad7E6gx5M13uwG93/mace.webp" width="40">
