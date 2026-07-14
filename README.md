@@ -3,7 +3,7 @@ $${\color{#61579d}︵‿୨♡୧‿︵}$$ ㅤ
 </p>
 
 <div align="center">
-<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z142_20260714011633.png" width="500">
+<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z142_20260714011633.png" width="430">
 </div>
 
 
