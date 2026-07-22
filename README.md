@@ -9,7 +9,7 @@ $${\color{#cfaea8} - ༻❁༺ -ㅤsheノherㅤ}$$ $${\color{#cfaea8} 8teen 𓈒
 $${\color{#be80d0}︵‿୨♡୧‿︵}$$ ㅤ</br>
 <p align="center">
 $${\color{#89b0d8}◟}$$
-$${\color{#cdb9f5}c+h}$$ $${\color{#ab93df}freely}$$ $${\color{#987ec7}unless;}$$ $${\color{#9579c4}on}$$ $${\color{#8569b6}dni}$$ $${\color{#725d99} ｡ ⁖ ⋆.}$$ $${\color{#4f3a75}✿}$$ $${\color{#89b0d8}◝}$$ ㅤ</br>
+$${\color{#cdb9f5}c+h}$$ $${\color{#ab93df}freely}$$ $${\color{#987ec7}unless;}$$ $${\color{#9579c4}on}$$ $${\color{#8569b6}dni}$$ $${\color{#725d99} ｡ ⁖ ⋆.}$$ $${\color{#4f3a75}✿}$$ ㅤ</br>
 $${\color{#84afda}✦}$$ ㅤ</br>
 $${\color{#cdb9f5}i}$$ $${\color{#ab93df}dont}$$ $${\color{#987ec7}have}$$ $${\color{#9579c4}a}$$ $${\color{#8569b6}dni}$$ $${\color{#725d99}if}$$ $${\color{#4f3a75}i,}$$ $${\color{#725d99}have}$$ $${\color{#8569b6}a,}$$ $${\color{#987ec7}problem}$$ $${\color{#ab93df}with}$$ $${\color{#cdb9f5}someone}$$ $${\color{#bca4ec}i}$$ $${\color{#b097e1}just}$$ $${\color{#9274cd}block}$$ $${\color{#8974cd}them}$$ㅤ</br>
 </p>
