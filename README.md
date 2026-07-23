@@ -1,20 +1,20 @@
-<p align="center">
-<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z154_20260721143308.png" width="250" align="left">
-<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z154_20260721143300.png" width="250" align="right">
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&pause=1000&color=8975D8&background=6FE9FF00&center=true&vCenter=true&width=300&height=60&lines=who+even+are+you+anymore%3F)](https://git.io/typing-svg)
+<img src="https://file.garden/ad7E6gx5M13uwG93/taxduo2.png" width="300" align="left">
 
 <p align="center">
-$${\color{#cfaea8} - ༻❁༺ -ㅤsheノherㅤ}$$ $${\color{#cfaea8} 8teen 𓈒ㅤ- ༻❁༺ -}$$ ㅤ</br>
-$${\color{#be80d0}︵‿୨♡୧‿︵}$$ ㅤ</br>
+<img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">  $${\color{#CEAF92}- ༻✿༺ -}$$  $${\color{#853d7d}  sheノherㅤ}$$ $${\color{#853d7d} 8teen 𓈒ㅤ}$$ $${\color{#CEAF92}- ༻✿༺ -}$$  <img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">ㅤ</br>
+$${\color{#a5abb7}︵‿୨♡୧‿︵}$$ ㅤ</br>
+
 <p align="center">
-$${\color{#89b0d8}◟}$$
-$${\color{#cdb9f5}c+h}$$ $${\color{#ab93df}freely}$$ $${\color{#987ec7}unless;}$$ $${\color{#9579c4}on}$$ $${\color{#8569b6}dni}$$ $${\color{#725d99} ｡ ⁖ ⋆.}$$ $${\color{#4f3a75}✿}$$ ㅤ</br>
-$${\color{#84afda}✦}$$ ㅤ</br>
-$${\color{#cdb9f5}i}$$ $${\color{#ab93df}dont}$$ $${\color{#987ec7}have}$$ $${\color{#9579c4}a}$$ $${\color{#8569b6}dni}$$ $${\color{#725d99}if}$$ $${\color{#4f3a75}i,}$$ $${\color{#725d99}have}$$ $${\color{#8569b6}a,}$$ $${\color{#987ec7}problem}$$ $${\color{#ab93df}with}$$ $${\color{#cdb9f5}someone}$$ $${\color{#bca4ec}i}$$ $${\color{#b097e1}just}$$ $${\color{#9274cd}block}$$ $${\color{#8974cd}them}$$ㅤ</br>
+$${\color{#853d7d}◟}$$
+$${\color{#7F5791}c+h}$$ $${\color{#76518A}freely}$$ $${\color{#734F8B}unless;}$$ $${\color{#6D4A85}on}$$ $${\color{#694A86}dni}$$ $${\color{#CEAF92} ☆⌒(ゝ。∂) }$$ $${\color{#853d7d}✿}$$ ㅤ</br>
+$${\color{#a5abb7}✦}$$ ㅤ</br>
+$${\color{#7F5791}i}$$ $${\color{#76518A}dont}$$ $${\color{#734F8B}have}$$ $${\color{#6D4A85}a}$$ $${\color{#694A86}dni}$$ $${\color{#7F5791}if}$$ $${\color{#76518A}i,}$$ $${\color{#734F8B}have}$$ $${\color{#6D4A85}a,}$$ $${\color{#694A86}problem}$$ $${\color{#7F5791}with}$$ $${\color{#76518A}someone}$$ $${\color{#734F8B}i}$$ $${\color{#6D4A85}just}$$ $${\color{#694A86}block}$$ $${\color{#694A86}them}$$ㅤ</br>
 </p>
-<div align="center">
-<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z157_20260721160823.png" width="230">
+
+<p align="center">
+<img src="https://file.garden/ad7E6gx5M13uwG93/wemmbus%20silly%20face.png" width="70" align="middle">
 
 <div align="center">
-<a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z137_20260721151905.png"width="210"></img></a> ㅤ<a href="https://spokeeeishere.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z137_20260721151151.png"width="210"></img>
+<a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172320.png"width="210"></img></a> ㅤ<a href="https://spokeeeishere.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172513.png"width="210"></img>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&pause=1000&color=7F5791&background=6FE9FF00&center=true&vCenter=true&width=300&height=60&lines=who+even+are+you+anymore%3F)](https://git.io/typing-svg)
