@@ -12,6 +12,9 @@ $${\color{#7F5791}i}$$ $${\color{#76518A}dont}$$ $${\color{#734F8B}have}$$ $${\c
 </p>
 
 <p align="center">
+$${\color{#CEAF92}✦}$$ ㅤ</br>
+
+<p align="center">
 <img src="https://file.garden/ad7E6gx5M13uwG93/wemmbus%20silly%20face.png" width="70" align="middle">
 
 <div align="center">
