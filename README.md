@@ -23,3 +23,6 @@ $${\color{#CEAF92}✦}$$ ㅤ</br>
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&pause=1000&color=7F5791&background=6FE9FF00&center=true&vCenter=true&width=300&height=60&lines=who+even+are+you+anymore%3F)](https://git.io/typing-svg)
 <p align="center">
 $${\color{#CEAF92}−−−−−−−−˚₊‧꒰ა☆໒꒱‧₊˚˗−−−−−−}$$
+
+<div align="center">
+<img src="https://file.garden/ad7E6gx5M13uwG93/ezgif.com-video-to-gif-converter%20(1).gif" width="300" align="left">
