@@ -24,5 +24,3 @@ $${\color{#CEAF92}✦}$$ ㅤ</br>
 <p align="center">
 $${\color{#CEAF92}−−−−−−−−˚₊‧꒰ა☆໒꒱‧₊˚˗−−−−−−}$$
 
-<div align="center">
-<img src="https://file.garden/ad7E6gx5M13uwG93/ezgif.com-video-to-gif-converter%20(1).gif" width="300" align="left">
