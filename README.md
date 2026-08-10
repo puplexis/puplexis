@@ -18,7 +18,7 @@ $${\color{#CEAF92}✦}$$ ㅤ</br>
 <img src="https://file.garden/ad7E6gx5M13uwG93/wemmbus%20silly%20face.png" width="70" align="middle">
 
 <div align="center">
-<a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172320.png"width="210"></img></a> ㅤ<a href="https://spokeeeishere.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172513.png"width="210"></img>
+<a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172320.png"width="210"></img></a> ㅤ<a href="https://tsukkiii.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172513.png"width="210"></img>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&pause=1000&color=7F5791&background=6FE9FF00&center=true&vCenter=true&width=300&height=60&lines=who+even+are+you+anymore%3F)](https://git.io/typing-svg)
 <p align="center">
