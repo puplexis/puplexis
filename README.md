@@ -24,3 +24,5 @@ $${\color{#CEAF92}✦}$$ ㅤ</br>
 <p align="center">
 $${\color{#CEAF92}−−−−−−−−˚₊‧꒰ა☆໒꒱‧₊˚˗−−−−−−}$$
 
+<p align="center">
+$${\color{#a5abb7}TYSMSM}$$ $${\color{#a5abb7}FOR}$$ $${\color{#a5abb7}400}$$ $${\color{#a5abb7}FOLLOWERS}$$ $${\color{#a5abb7}!!}$$  ㅤ</br>
