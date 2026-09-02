@@ -24,6 +24,3 @@ $${\color{#CEAF92}✦}$$ ㅤ</br>
 <p align="center">
 $${\color{#CEAF92}−−−−−−−−˚₊‧꒰ა☆໒꒱‧₊˚˗−−−−−−}$$
 
-<p align="center">
-$${\color{#853d7d}i}$$ $${\color{#853d7d}would}$$ $${\color{#853d7d}love}$$ $${\color{#853d7d}to}$$ $${\color{#853d7d}get}$$ $${\color{#853d7d}a}$$ $${\color{#853d7d}gift}$$ $${\color{#853d7d}skin}$$ $${\color{#853d7d}of}$$ $${\color{#853d7d},,wemmbu,spoke,flame,,}$$ㅤ</br>
-
