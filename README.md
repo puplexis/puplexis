@@ -10,7 +10,7 @@ $${\color{#7F5791}c+h}$$ $${\color{#76518A}freely}$$ $${\color{#734F8B}unless;}$
 $${\color{#a5abb7}✦}$$ ㅤ</br>
 $${\color{#7F5791}i}$$ $${\color{#76518A}dont}$$ $${\color{#734F8B}have}$$ $${\color{#6D4A85}a}$$ $${\color{#694A86}dni}$$ $${\color{#7F5791}if}$$ $${\color{#76518A}i}$$ $${\color{#734F8B}have}$$ $${\color{#6D4A85}a}$$ $${\color{#694A86}problem}$$ $${\color{#7F5791}with}$$ $${\color{#76518A}someone}$$ $${\color{#734F8B}i}$$ $${\color{#6D4A85}just}$$ $${\color{#694A86}block}$$ $${\color{#694A86}them.}$$ㅤ</br>
 $${\color{#a5abb7}✦}$$ ㅤ</br>
-$${\color{#7F5791}do}$$ $${\color{#76518A}not}$$ $${\color{#734F8B}copy}$$ $${\color{#694A86}any}$$ $${\color{#6D4A85}of}$$ $${\color{#694A86}my}$$ $${\color{#7F5791}work/skins.}$$ $${\color{#694A86}or}$$ $${\color{#694A86}take}$$ $${\color{#694A86}inspo.}$$ㅤ</br>
+$${\color{#7F5791}dont}$$ $${\color{#734F8B}copy}$$ $${\color{#694A86}any}$$ $${\color{#6D4A85}of}$$ $${\color{#694A86}my}$$ $${\color{#7F5791}work/skins.}$$ $${\color{#694A86}or}$$ $${\color{#694A86}take}$$ $${\color{#694A86}inspo.}$$ㅤ</br>
 </p>
 
 <p align="center">
