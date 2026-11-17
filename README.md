@@ -28,3 +28,6 @@ $${\color{#CEAF92}−−−−−−−−˚₊‧꒰ა☆໒꒱‧₊˚˗−�
 
 <p align="center">
 $${\color{#853d7d}haiihioohi}$$ $${\color{#853d7d}gift}$$ $${\color{#853d7d}me}$$ $${\color{#853d7d}wemmbu}$$ $${\color{#853d7d}or}$$ $${\color{#853d7d}spoke}$$ $${\color{#853d7d}skins}$$ $${\color{#853d7d}please}$$ $${\color{#853d7d}!!}$$ $${\color{#853d7d}:3}$$ ㅤ</br>
+
+<p align="center">
+$${\color{#CEAF92}so}$$ $${\color{#CEAF92}close}$$ $${\color{#CEAF92}to}$$ $${\color{#CEAF92}500}$$ $${\color{#CEAF92}followers}$$ $${\color{#CEAF92}:3}$$ ㅤ</br>
